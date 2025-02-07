@@ -1,1 +1,0 @@
-# Foodies-Delight-Static
